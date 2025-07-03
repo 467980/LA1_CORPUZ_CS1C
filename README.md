@@ -1,1 +1,0 @@
-# LA1_CORPUZ_CS1C
